@@ -2,7 +2,7 @@
 <p id="description">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.hei, min venn. im seiji. a lot in afk mode. only w2i and only he/him. my <a href="https://t.me/io3jiw">info</a> / <a href="https://t.me/Seij1Said">Said</a></p>
  
 
-<img src="https://www.image2url.com/r2/default/images/1784603369199-bb047816-58f0-497c-9d4d-6d0c0dee10bf.png" alt="image" width="495"> <img align="right" src="https://i.postimg.cc/7h3nL7z5/photo-2026-07-21-08-27-38.jpg" width="495">
+<img src="https://www.image2url.com/r2/default/images/1784603369199-bb047816-58f0-497c-9d4d-6d0c0dee10bf.png" alt="image" width="395"> <img align="right" src="https://i.postimg.cc/7h3nL7z5/photo-2026-07-21-08-27-38.jpg" width="395">
 <table>
 <tr>
 𝘼𝙗𝙤𝙪𝙩 𝙈𝙚<br>
@@ -15,7 +15,7 @@
  </tr>
     </table>
 
-<img src="https://www.image2url.com/r2/default/images/1784603752023-c16253ab-473d-4aca-86ba-94a6ed8367f9.jpg" alt="image" width="495"> <img align="right" src="https://i.postimg.cc/RhVLq2Vq/photo-2026-07-21-07-35-35.jpg" width="495">
+<img src="https://www.image2url.com/r2/default/images/1784603752023-c16253ab-473d-4aca-86ba-94a6ed8367f9.jpg" alt="image" width="395"> <img align="right" src="https://i.postimg.cc/RhVLq2Vq/photo-2026-07-21-07-35-35.jpg" width="395">
 
 <table>
   
